@@ -1,8 +1,3 @@
 # trainingtest1
-change from neo
-update from Miao
-update from Helen
-peggy's mark
-update by Pampas
-
-### LOL ###
+change by Joyce
+Change by Davis
