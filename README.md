@@ -1,3 +1,3 @@
 # trainingtest1
-change by Joyce
-change by kane
+change from neo
+update from Miao
